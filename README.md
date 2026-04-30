@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> في عيونك سحر ينسيني الكلام
+> نار الهوى تكوي قلبي بهيام
+> أنتِ قدري وحياتي والسلام
+> نبضك يهمس لي بأحلى غرام
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
